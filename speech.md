@@ -1,600 +1,704 @@
 Budget Speech
-
 Mr Speaker,
 
-I move that the Appropriation (2011/12 Estimates) Bill be now read a second time.
+I move that the Appropriation (2012/13 Estimates) Bill be now read a second time.
 
-In 2008, this Government was elected to build a more prosperous and ambitious
-New Zealand.
+It's a privilege to deliver the National-led Government's fourth Budget.
 
-Since then New Zealand has been hit with the lingering effects of the global financial
-crisis, the two earthquakes and other unforeseeable setbacks.
+This Budget is about investing in our future.
 
-But we have made progress regardless.
+It shows the Government is responsibly managing its finances. We are on track to post an
+operating surplus in 2014/15, when we will start bringing debt down to prudent levels.
 
-The Budgets of 2009 and 2010 helped sustain economic activity and support jobs, and
-protected the most vulnerable New Zealanders.
+That is a considerable achievement given the difficulties New Zealand has faced over the
+past three years:
 
-At the same time the Government has pursued a longer-term programme to lift growth. It
-has made major infrastructure investments, improved regulation, continued to reform and
-invest in science and innovation, shifted resources to frontline services and reformed the
-tax system.
+- A sharp recession that started in early 2008.
 
-That work continues. Today I introduce a Budget that will further strengthen the long-term
-performance of the economy.
+- The Global Financial Crisis, which is still being felt around the world.
 
-It supports economic forecasts that show growth returning to its highest in over five years
-and 170,000 net new jobs being created by 2015.
+- The destructive earthquakes in Canterbury.
 
-It channels resources into key social programmes, while ensuring they are well-targeted
-and protect the most vulnerable.
 
-It provides certainty that Christchurch, our second largest city, can be rapidly rebuilt.
+Good fiscal management is important because it helps us pursue the other three priorities
+of this Government.
 
-And, despite the earthquake, it eliminates the deficit and achieves surplus by 2014/15, a
-year earlier than forecast in last year's Budget.
+The first of these is building a more productive and competitive economy. The New
+Zealand economy lost competitiveness and built up large imbalances during the 2000s.
 
-As a result, the Government's need to raise debt will greatly diminish. This year we have
-raised an average of $380 million of net new debt every week.
+Those imbalances have to be reversed if we are to achieve sustainable growth.
 
-Next year that will fall by more than two-thirds to around $100 million. And from 2014/15
-on we will be repaying debt.
+The Budget is another step in creating an innovative and productive economy that sells
+more to the world - where people have the jobs, opportunities and higher incomes to get
+ahead here in New Zealand.
 
-Creating and passing through this House a Budget each year is at the heart of stable
-government. I want to especially thank the Government's support parties, ACT, the MÄori
-Party and United Future, for their contributions.
+Secondly, the Government is committed to delivering better public services.
 
-Mr Speaker,
-Our main task remains to return New Zealand to sustained prosperity. The economy has
-been underperforming since before the global financial crisis. Indeed, per capita GDP has
-not grown since 2004.
+The Budget shows we are continuing to reform public services to deliver better results,
+protect the vulnerable in our society, and at the same time bring down many of the longterm social costs that drive public-sector spending.
 
-This Government believes that a competitive and well-balanced economy can deliver
-more jobs and high incomes.
+And thirdly, the Budget continues the Government's strong commitment to rebuilding
+Christchurch and the surrounding areas.
 
-Between 1990 and 2004, a 15-year period, on average the New Zealand economy grew
-by over 3 per cent a year, and export volumes rose by over 5 per cent a year.
+Collectively, these priorities are about building a brighter future for New Zealanders from
+all backgrounds and walks of life.
 
-On average 35,000 jobs were created every year.
-
-So our plan is simple, and always has been.
-
-It's about returning to conditions that allow New Zealand to focus on what it is good at
-doing.
-
-It's about making sure we have a tax system that encourages work and savings, rather
-than providing incentives to shelter income.
-
-It's about having an efficient public sector that doesn't crowd out the internationally competitive parts of the economy.
-
-It's about limiting government debt, to reduce our reliance on foreign lenders and to give
-us a buffer against future economic shocks.
-
-It's about regulation that encourages enterprise and flexibility.
-
-It's about an education system that is producing skilled workers, and those workers
-knowing they have a successful future here in New Zealand.
-
-It seems simple but it's easy to get off track, as we have seen.
-
-However, it is the only way to create permanent, worthwhile jobs for Kiwis and their
-families.
-
-It's a proven formula. It works.
+Working constructively with the ACT, United Future and Māori Parties, we will continue to
+make balanced and fair decisions to support all New Zealanders through challenging
+times and put the economy on a more competitive footing for the longer term.
 
 Mr Speaker,
-Let me first address issues raised by the Canterbury earthquakes.
+The New Zealand economy has grown modestly but steadily, despite significant
+headwinds.
 
-Christchurch is not only our second-largest city â€“ it is also a major industrial, tourism and
-regional hub, and is essential to the performance of the wider economy.
+The efforts of all New Zealanders, supported by the Government's policies, are delivering
+results in difficult circumstances.
 
-The estimated combined cost of the two earthquakes to the economy is around
-$15 billion, which is about 8 per cent of GDP.
+Since the recession, the economy has expanded in nine out of the past 10 quarters.
 
-To put this in context, the recent earthquake off the north-east coast of Japan is estimated
-to have caused damage equivalent to around 3 to 5 per cent of Japan's GDP.
+Looking ahead, growth is forecast to rise to more than 3 per cent in 2014/2015.
 
-The Treasury's estimate of the direct impact on Crown expenses from the two
-earthquakes is $8.8 billion. This comprises a $3.3 billion cost to ACC and EQC, net of
-reinsurance, and an estimated $5.5 billion for all other costs. This includes repairing
-infrastructure, roads, schools and hospitals, providing temporary housing and providing
-the business support package.
+Though moderate by historical standards, New Zealand's growth outlook is stronger over
+the next few years than that forecast for the Euro area, the United Kingdom, Japan, the
+United States, and Canada. It's similar to forecast growth in Australia.
 
-The $8.8 billion cost is too much for Christchurch residents alone to bear.
+Households and businesses have started to save and pay down debt. New Zealand's
+household savings rate is positive for the first time in a decade, and is forecast to increase
+to almost 4 per cent by 2016.
 
-But it is manageable within the Government's fiscal programme. New Zealand's annual
-GDP is around $200 billion. The Government spends around $70 billion a year and has
-assets of over $220 billion.
+That is a positive and encouraging sign.
 
-For these reasons, the appropriate response is to initially debt fund this cost. That will
-ensure that the burden of reconstruction is borne evenly across all regions and spread
-across time.
+Increased savings will temper economic growth a little in the short term, but over time will
+leave New Zealand considerably less vulnerable to economic shocks.
 
-Debt funding is both the quickest and fairest way to pay for it.
+Job creation is picking up. Over the past two years, 60,000 more people have been
+employed, and the Treasury expects a net 154,000 new jobs over the next four years.
 
-Budget 2011 will provide certainty of funding for Christchurch by establishing the
-Canterbury Earthquake Recovery Fund.
+Unemployment is forecast to drop below 5 per cent by 2015.
 
-This Fund will initially include up to $5.5 billion to meet all of the Government's
-earthquake-related costs, other than those funded by EQC and ACC.
+Growth in the near term will be driven by a number of factors.
 
-The Canterbury Earthquake Recovery Fund will ensure that there is transparency and
-control over the cost of the earthquakes. It is expected to take several years for the final
-bills to arrive, after which the Fund will be wound up.
+The rebuilding of Christchurch will be a key driver of domestic activity and is expected to
+contribute about one percentage point to annual growth in each calendar year from 2012
+to 2016.
 
-The Government will also launch a new four-year maturity Earthquake Bond for
-New Zealand investors. The proceeds will be directed to the Canterbury Earthquake
-Recovery Fund.
+Our two largest trading partners â€“ Australia and China â€“ are forecast to maintain
+reasonable growth rates, therefore keeping up demand for our exports. We are also well
+placed to benefit from trade with other fast-growing economies in the Asia Pacific region.
 
-These arrangements mean that reconstruction of Christchurch can proceed with certainty
-that the Crown's contributions are fully funded.
+And our terms of trade are expected to remain relatively high on the back of demand for
+our major export commodities.
 
-Mr Speaker,
-The OECD, the Savings Working Group and others have pointed out that we need to
-make the economy more competitive and lift national savings.
+These opportunities will be supported by Government policies to encourage businesses to
+invest, grow, and employ.
 
-Currently, most businesses and households have successfully lifted their own savings.
+However, the global environment remains volatile.
 
-While that has hurt retailers for now, in the long term it is a good thing.
+In particular, the Euro area and the United Kingdom have yet to resolve the huge
+problems caused by a long-term reliance on debt and government spending to drive
+economic growth.
 
-The main sector not saving is the Government.
+This global weakness and volatility means New Zealand must focus on the issues it can
+directly control, including getting back to surplus, reducing government and private sector
+debt, and improving competitiveness.
 
-The deficit in 2010/11 will be large, at $16.7 billion or 8.4 per cent of GDP. This includes a
-range of one-off costs, including the earthquakes.
+New jobs are created and incomes grow only when businesses have the confidence to
+invest, take risks to employ more people, and pay better wages from higher revenues.
 
-The Government believes there is a strong case to eliminate the deficit faster and target a
-lower level of public debt. This is for a number of reasons.
+Growth in the 2000s was built on unsustainable foundations â€“ excessive spending,
+including from the Government, and high levels of household debt.
 
-The fallout from the global financial crisis of two years ago is gradually receding.
+We are moving towards growth that is driven by savings, exports, and productive
+investment in the parts of the economy that trade with the rest of the world.
 
-The recent fiscal expansion, which began in the mid-2000s and saw nominal spending
-rise 50 per cent in just five years, has placed much strain on the economy. Exports,
-growth and productivity have all stagnated.
-
-Finance costs would otherwise rise unacceptably, squeezing out more worthwhile
-spending.
-
-Rising debt leaves the Government vulnerable and less able to meet future shocks. Its
-double-A plus credit rating is on negative outlook with two rating agencies.
-
-And productivity growth over the past decade has been less than one-sixth of that in the
-1990s.
-
-For all these reasons, stronger government finances are an essential component of
-moving to sustainably higher growth and job creation.
+It is within this context that I present Budget 2012.
 
 Mr Speaker,
-The Budget forecasts show that, while Government spending will increase, it will do so
-more slowly than projected previously.
+I want to talk first about responsible financial management, before I go on to talk
+about the other three, equally-important, priorities of this Government.
 
-Core Crown spending is forecast to rise from $73 billion in 2011/12 to $77.1 billion in
-2014/15.
+Over the past three years, the Government has faced very considerable fiscal challenges.
 
-The Budget identifies $5.2 billion of savings over five years that will be redirected to
-frontline public services and to reducing the Government's deficit.
+In 2008, net government debt was $10 billion. Today it stands at $50 billion, and is
+forecast to reach more than $70 billion before we return to surplus and start paying-down
+debt.
 
-New operating spending of around $4 billion over that period is tightly prioritised to health
-and education, which together receive three-quarters of total new spending.
+That build-up in government debt has been the appropriate response to the triple shocks
+of a domestic recession, the Global Financial Crisis, and the Canterbury earthquakes.
 
-The net result is a saving of $1.2 billion in operating spending over five years from those
-parts of the Budget funded by new spending allowances.
+The alternative would have been to dramatically slash spending or dramatically increase
+taxes, both of which would have brought considerable pain to households and damaged
+the economy at a time when the recovery was still fragile.
 
-Mr Speaker,
-Part of the adjustment involves examining programmes where costs have expanded
-rapidly, in ways that weren't anticipated, and without commensurate value to the
-community or taxpayers.
+The Government chose to run larger deficits and absorb much of the impact of these
+shocks on its own balance sheet to protect vulnerable New Zealanders and enable the
+economy to get back on track.
 
-KiwiSaver, Working for Families, student loans and ACC are all examples where cost
-escalation has occurred.
+But, as we made clear at the time, this could not continue indefinitely.
 
-The Government is committed to all of these programmes. With modest adjustments,
-they will emerge more effective, better targeted to those who really need them, and
-aligned with what the economy can afford.
+So the Government maintained spending, but slowed its growth significantly.
 
-Mr Speaker,
-The Government has looked closely at KiwiSaver.
+As an illustration, over its last four Budgets, from 2004 to 2008, the previous
+Government's final-year spending on new discretionary operating and revenue initiatives
+totalled around $15 billion.
 
-KiwiSaver is now well established. It has nearly 1.7 million members, and is gaining about
-20,000 new members a month. KiwiSaver funds provide a pool of long-term capital which
-can be invested with relative certainty.
+For this Government, the corresponding figure over four Budgets is about $750 million.
 
-KiwiSaver balances are currently around $7.9 billion. Of this, about $3.5 billion has been
-directly contributed by the Government, and the balance by individuals and their
-employers.
+This Government's discipline means New Zealand is on track to return to fiscal surplus in
+2014/15, and then to start reducing debt.
 
-In 2010/11 alone, the Government is contributing $1.2 billion.
-
-At present, KiwiSaver's contribution to national savings is ambiguous. It helps individuals
-to save for their retirement.
-
-But it means the Government is borrowing, mostly from foreigners, to contribute to private
-savings.
-
-This does not lift national savings.
-
-A better approach is to have New Zealanders actually saving for their future.
-
-To achieve this, the Budget makes the following changes.
-
-The default and minimum rate of member contributions will increase from 2 per cent to
-3 per cent from 1 April 2013. Employees will retain the option to opt out.
-
-The rate of employer contributions will also increase from 2 per cent to 3 per cent from
-1 April 2013.
-
-The Member Tax Credit will be reduced to 50 cents per dollar of individual contribution,
-with the cap halved to $521 per year from the year ending 30 June 2012. This change will
-be reflected in payments to KiwiSaver accounts from the second half of 2012.
-
-The exemption from the Employer Superannuation Contribution Tax will be scrapped from
-1 April 2012. This exemption is regressive, in that those on higher incomes receive larger
-subsidies.
-
-Existing Kick-Start payments will remain unchanged.
-
-The combined impact will be to see KiwiSaver inflows largely unchanged, but funded
-more by private savings and less from the Government. The fiscal saving to the Crown
-will be $2.6 billion over the next four years.
-
-KiwiSaver remains an attractive, subsidised investment. The Government is planning to
-contribute $650 million next year and $2.5 billion over the next four years.
-
-These changes put KiwiSaver funds on a sound footing. On current projections,
-KiwiSaver funds will total around $25 billion by 2015, and nearly $60 billion in 10 years'
-time.
-
-KiwiSaver funds are well placed to participate in the Mixed Ownership Model, which I will
-come to shortly.
-
-Where State-owned Enterprises raise outside equity, New Zealand investors will be at the
-front of the queue to invest. We expect KiwiSaver funds to become substantial long-term
-holders of these investments.
-
-The decisions to lift default contribution rates, to keep KiwiSaver membership voluntary
-and to remove the Employer Superannuation Contribution Tax exemption were all
-recommendations of the Savings Working Group.
+The forecast fiscal surplus in 2014/15 is $197 million. This surplus is forecast to grow to
+$2.1 billion in 2015/16 and $4.4 billion in 2016/17.
 
 Mr Speaker,
-This Budget makes changes to Working for Families to better target assistance toward
-lower-income families, and to put the scheme on a more sustainable footing.
+These surpluses will allow the Government to rebuild New Zealand's resilience to further
+shocks, help lift national savings, keep interest rates lower for longer, take pressure off the
+exchange rate, and reduce future finance costs.
 
-Working for Families will remain essentially in its current form. The changes consist of
-small adjustments to the abatement threshold and abatement rate, and a gradual
-alignment of the over-16 rate with the 13-to-15-year-old rate.
+A significant surplus will also give us choices when it comes to public services which we
+don't have while we're running deficits.
 
-These changes will be phased in over four steps as Family Tax Credit rates are adjusted
-for inflation. This is a very gradual transition which is expected, given current inflation
-forecasts, to take eight years.
+This Budget takes a number of balanced decisions to ensure the Government reaches
+surplus in 2014/15.
 
-Lower-income families and beneficiaries will be largely unaffected by these changes, and
-the majority will actually get an increase in their Working for Families payments after
-1 April next year.
+These decisions include running a zero Budget again this year, where $4.4 billion of new
+operating spending over the four-year forecast period is matched by a combination of
+savings and revenue initiatives.
 
-A number of families higher up the Working for Families scale, however, will receive a little
-less than they currently do now, or will no longer qualify. In most cases, the impacts will
-be small.
+The Government is making significant new investment in priority areas, while at the same
+time keeping a tight rein on growth in spending and public debt.
 
-To put this in context, total Working for Families payments have almost doubled over the
-past five years, and are forecast to cost about $10.7 billion over the next four years.
+In terms of savings initiatives, we are continuing to reprioritise existing spending to ensure
+New Zealanders receive better public services, especially in health, education, welfare,
+law and order, and science and innovation.
 
-These changes represent about a 4 per cent trimming of the scheme.
+This will allow core Crown expenses to fall progressively from 33.5 per cent of GDP in
+2011/12, to 30.2 per cent of GDP in 2015/16.
 
-Mr Speaker,
-The Budget also makes changes to the student loans scheme.
+We are also focusing on improving the effectiveness of spending across the board.
 
-Once again, the scheme will continue in essentially its current form.
+Effective public services that get results are good for individuals and their families, and will
+also generate sustainable long-term savings.
 
-This year, the Crown will lend almost $1.6 billion to assist students, up 50 per cent over
-the past five years. There are currently more than $12 billion of loans outstanding.
-
-However, at present, for every dollar lent out the Government receives only around
-55 cents back in 2011 dollar terms.
-
-Budget 2011 tightens the lending criteria so that the scheme is better focused on those
-who really need assistance.
-
-The measures tighten borrowing conditions for those aged over 55, for part-time students
-and for those already overdue or in default. There are a number of additional changes.
-
-The estimated operating and capital savings over four years are $447 million. The Crown
-still expects to lend students a further $6.5 billion over the next four years.
-
-Mr Speaker,
-The public sector has a wider role to play in lifting productivity and national saving.
-
-Over the past two years the Government has signalled the need for the sector to become
-more efficient, and has been mindful of the large increases in most budgets that have
-occurred in recent years.
-
-In its first two Budgets, the Government successfully reprioritised $3.8 billion of spending
-into higher-priority areas.
-
-In Budget 2011, $980 million of efficiency savings will be sought from the public sector
-over three years, starting from 1 July 2012.
-
-The Government will require agencies to fund the cost of KiwiSaver, and some State
-sector retirement schemes for their employees. This will generate savings of $650 million.
-
-At present these contributions are centrally funded and not visible to public sector
-employers.
-
-A further $330 million in back office savings will be sought from 31 core government
-agencies.
-
-The savings are part of the ongoing improvement that the Government expects, and are
-consistent with the adjustment the households and businesses have had to make in
-recent years.
-
-Mr Speaker,
-One area where the benefits of cost reductions are already apparent is ACC.
-
-Over the past two years, ACC has successfully controlled its previously run-away costs,
-and delivered better results from existing spending.
-
-One immediate benefit is that the Government will need to contribute $638 million less to
-the non-earners' account over the next four years than previously projected.
-
-ACC members in other accounts will also benefit, with future levies also trending lower as
-a result of the cost savings within the scheme.
-
-Mr Speaker,
-I now turn to the Budget's main new initiatives.
-
-The largest share of new spending has been dedicated to improving core front-line
-government services.
-
-The health sector will receive $1.7 billion of new funding over the next four years. In
-addition, a further $500 million of expenditure has been reprioritised within the sector.
-
-District Health Boards will receive the bulk of this funding, including around $400 million in
-the next year alone.
-
-This will fund a wide range of initiatives, including care for first-time mothers, widened
-access to medicines funded through DHBs, additional elective surgery, increased
-disability support services and training more doctors.
-
-The Government's commitment to raising education standards remains strong, so that all
-young New Zealanders reach their potential.
-
-The Budget provides an extra $1.4 billion for education, including over $100 million of new
-capital spending. In addition, a further $356 million has been reprioritised.
-
-This builds on the past two years' investment in early childhood education, National
-Standards and the Youth Guarantee.
-
-Early childhood education also receives an additional $550 million.
-
-The justice sector is to receive $157 million in new funding in Budget 2011 to ensure
-access to justice and increase public safety.
-
-There are significant initiatives elsewhere where a strong case was made for additional
-funding.
-
-Statistics New Zealand receives $58 million of new funding to rebuild 20-year-old IT
-systems that will ensure the ongoing supply of important economic and social data.
-
-The Irrigation Acceleration Fund has been expanded with $35 million of new funding over
-the next five years. This will help support the development of new water harvesting,
-storage and distribution infrastructure.
-
-Budget 2011 provides significant capital and operational funding to strengthen delivery of
-school and community-based MÄori language initiatives, help schools to engage better
-with MÄori students, improve literacy and support Kura Kaupapa MÄori.
-
-Budget 2011 provides an additional $25 million over the next four years for WhÄnau Ora,
-with a further $5 million to be reprioritised from within Vote MÄori Affairs.
-
-I particularly thank the Hon Dr Pita Sharples and the Hon Tariana Turia as the Ministers
-responsible, together with the rest of the MÄori Party.
-
-Mr Speaker,
-The Budget also includes a range of new capital spending, mostly focused on improving
-New Zealand's infrastructure.
-
-The Government believes that efficient infrastructure will underpin improved productivity in
-a growing economy.
-
-Budget 2011 allocates a further $942 million of capital funding to ultra-fast broadband, as
-Crown Fibre Holdings completes negotiations for the roll-out. This brings the total
-invested over the past three years to $1.4 billion.
-
-A further $28 million has been allocated for ultra-fast broadband in schools.
-
-The Budget includes the second $250 million tranche of the Government's intended
-$750 million investment over three years as its contribution toward KiwiRail's $4.6 billion
-turnaround plan.
-
-And there is an additional $88 million over eight years to complete the upgrade and
-renewal of the Wellington Metro rail network.
-
-Other key parts of the Government's infrastructure programme are continuing.
-
-We continue to invest over $1 billion a year in state highway improvements, including the
-seven Roads of National Significance and a number of other significant regional projects.
-
-And the investments in the new prison at Wiri, and a number of new schools, remain on
-target to deliver worthwhile savings to taxpayers via Public-Private Partnerships.
-
-Mr Speaker,
-These capital commitments are part of a larger programme of investment in public assets.
-
-The net value of government-owned assets is expected to increase by $34.3 billion
-between 2010 and 2015.
-
-This includes a range of high-priority areas, including social infrastructure such as
-schools, hospitals, housing and student loans, as well as the investment in roads, rail,
-broadband, electricity transmission and increased investment in financial assets.
-
-Some of this extra investment will occur within the State-owned enterprises and Crown
-entities. But about $21 billion will be invested in core social infrastructure and student
-loans.
-
-The Government's objective is to maintain investment in core public assets without
-increasing debt. This highlights the need for the Government to prioritise where its capital
-is used.
-
-Mr Speaker,
-At present, our commercial assets present the greatest scope to change the
-Government's asset mix.
-
-Earlier this year the Government announced it would explore extending the Mixed
-Ownership Model for some of its commercial assets.
-
-This model frees up Crown capital, provides the companies involved with wider access to
-capital and imposes greater transparency and commercial discipline and reduces the
-need for extra government borrowing.
-
-It also provides Kiwi investors with opportunities to put their money in solid, New Zealandcontrolled companies.
-
-It provides the opportunity for KiwiSaver funds, and large government investors like the
-New Zealand Superannuation Fund and ACC, to increase the proportion of their funds
-invested in New Zealand.
-
-The Government therefore intends to apply the Mixed Ownership Model to Mighty River
-Power, Genesis Energy, Solid Energy and Meridian Energy, along with reducing its
-shareholding in Air New Zealand, starting in 2012.
-
-In all cases the Crown will retain majority ownership.
-
-The expected revenue from offering minority stakes in these five companies is between
-$5 billion and $7 billion.
-
-This will therefore fund about one-third of the core Crown's increased investment in social
-assets in the period to 2015.
-
-The alternative would have been to borrow more. The Government believes it is much
-better to reprioritise existing capital, in this case from commercial to social assets, rather
-than always accumulate debt.
-
-The Government will seek a mandate in the 2011 general election before proceeding with
-the Mixed Ownership Model.
-
-Mr Speaker,
-The lift in private savings will benefit from a sound savings environment. Investors need
-both confidence to invest, and quality, reliable investments to invest in.
-
-The collapse of the finance company sector was a major setback to confidence.
-
-Since then, the Government has materially improved the savings environment.
-
-This includes creation of the Financial Markets Authority, overhaul of securities law,
-regulation of the insurance sector and of financial advisors, and prudential supervision of
-non-bank deposit takers.
-
-In terms of investment opportunities, both the issue of Earthquake Bonds, and the offer of
-equity to New Zealand investors under the Mixed Ownership Model, will help deepen the
-local capital markets.
-
-In addition, the Debt Management Office will issue a new, long-dated, inflation-indexed
-bond. This reflects clearly expressed demand from long-term investors.
-
-The local government funding agency will start operating later this year. It will be a
-collective vehicle, providing cheaper funding for local body projects as well as more liquid,
-better diversified assets for investors.
-
-Mr Speaker,
-This year the ACT Party will bring two challenging Bills to the House, which the
-Government will support to select committee.
-
-The Regulatory Standards Bill seeks to improve the quality of regulatory processes. It
-includes a mechanism for providing transparency around the making of regulations, and
-an incentive mechanism to ensure compliance with the process.
-
-The other ACT Party Bill is the Spending Cap (People's Veto) Bill. This Bill seeks to cap
-real per capita government spending.
-
-In both cases the Government will give the Bill, and the submissions on it, careful
-consideration.
-
-Mr Speaker,
-The final elements of last year's tax package have now come into force, including tighter
-income definitions related to State assistance and reducing the company tax rate to 28
-per cent.
-
-This low rate of tax on businesses demonstrates that we are prepared to back them and
-recognise that business is the growth engine in a modern economy.
-
-Mr Speaker,
-Last year's review of the thin capitalisation rules did not include banks, which are subject
-to a separate regime because of their high gearing.
-
-Having reviewed the banking sector, we have decided to lift the minimum level of nondeductible capital from 4 per cent to 6 per cent, which is more in line with international
-norms.
-
-This will provide estimated revenue of $100 million over the next four years.
-
-I thank my colleague, the Hon Peter Dunne, for his ongoing work in improving our tax
+In terms of revenue initiatives, the Budget continues the Government's focus on
+broadening the tax base, closing tax loopholes, and improving the fairness of the tax
 system.
 
-Mr Speaker,
-The measures announced in this Budget will put both the Government's finances and the
-economy on a much sounder footing despite a series of adverse events and a slower
-economic recovery.
+This builds on the measures introduced in Budgets 2010 and 2011.
 
-The projected operating deficit will fall dramatically over the next three years. It will be in
-significant surplus from 2014/15.
+The Inland Revenue Department will receive an extra $78.4 million to further improve its
+tax auditing and compliance functions. These extra compliance activities are estimated to
+have a net positive impact on the operating balance of $345.4 million over the four years
+to 2015/16.
 
-This is a year sooner than the position forecast last year.
+We are also broadening the tax base by:
 
-Contributions to the New Zealand Superannuation Fund are projected to resume from
-2016/17.
+- Tightening the rules for deducting costs of assets that are used both by their owners
+and rented out for income, such as holiday homes, boats, and aircraft.
 
-The debt projections have also improved.
+- Putting changes to livestock valuation rules into Budget legislation to prevent farmers
+who change valuation schemes receiving an unintended tax break.
 
-Even absorbing the cost of the earthquakes, net core Crown debt is now projected to peak
-at 29.6 per cent of GDP in 2014/15 and then decline steadily.
+- Removing three tax credits that no longer fit the purpose for which they were created.
 
-This contrasts strongly with the outlook of ever-rising debt which the Government inherited
-in late 2008.
 
-Debt would have peaked at around 27.5 per cent of GDP in the absence of the
-earthquakes.
-
-Looking further ahead, continuation of current policy would see net debt eliminated
-entirely by 2024.
-
-This emphasises the responsible, longer-term approach taken by this Government, which
-will leave future governments with choices about whether to invest, spend or reduce
-taxes.
-
-It will also provide room to ride out future recessions, which surely will occur.
-
-Our long-term fiscal objective remains to ensure that net debt remains no more than
-20 per cent of GDP by the early 2020s. The current projections show this being
-comfortably achieved.
+Together, these changes will save about $410 million over the next four years, and I thank
+the Honourable Peter Dunne for his work in this area.
 
 Mr Speaker,
-Budget 2011 is about building our future.
+When the Budget is in sufficient surplus, the Government is committed to resuming
+contributions to the New Zealand Superannuation Fund. On current forecasts, this is
+expected to happen in 2017/18.
 
-The Prime Minister has made clear this Government's aspirations for an economy that
-values enterprise, rewards people for effort and encourages them to get ahead.
+Furthermore, decisions will also need to be made on the rate of debt repayment, to meet
+the Government's longer-term objective of reducing debt to 20 per cent of GDP by 2020.
 
-This is not a typical election year Budget. It is a responsible Budget appropriate to
-New Zealand's situation.
+Resuming New Zealand Superannuation Fund contributions and repaying debt will require
+an on-going commitment to responsibly manage surpluses.
 
-Budget 2011 shows how, from the depths of the global financial crisis when a decade of
-red ink was in prospect, and despite the devastating Canterbury earthquakes and other
-setbacks, the Government has laid the basis for future prosperity.
+Budget 2012 proposes changes to the fiscal responsibility provisions of the Public Finance
+Act to reinforce fiscal disciplines.
 
-It is within sight of budget surpluses and falling public debt.
+We are proposing additional principles for Part 2 of the Public Finance Act, which
+ministers will have to take into account when setting fiscal policy. These changes will bring
+more transparency to government spending decisions and how they affect the wider
+economy and future generations.
 
-It has funded reconstruction of Christchurch, our second largest city.
+The Government is also consulting other political parties about the possible introduction of
+a spending limit, as set out in the National-ACT confidence and supply agreement.
 
-It has in prospect the strongest growth for a decade.
+I acknowledge the initiative on this issue of the Honourable John Banks.
 
-It has materially improved the tax system.
+Mr Speaker,
+The new operating allowances for future Budgets remain as they were, at $800 million for
+Budget 2013, $1.19 billion for Budget 2014, and thereafter rising at 2 per cent each
+Budget.
 
-It has placed KiwiSaver onto a sounder, more sustainable footing, and instilled a culture
-built on savings rather than debt.
+This allows the Government to maintain some flexibility to deal with future spending and
+revenue pressures, while still achieving a surplus in 2014/15.
 
-And it will provide future New Zealanders with real choices about further lowering taxes,
-adding quality public services, or both.
+Mr Speaker,
+As I said earlier, good fiscal management is important because it helps us pursue the
+other three priorities of this Government.
 
-We set a path for responsible government spending from the start of our term, and we
-maintain that path in this Budget.
+So I want to turn to the first of these â€“ building a more productive and competitive
+economy.
 
-This Budget continues to build a platform for a much stronger, more ambitious
-New Zealand.
+The Budget continues to support the wide range of actions the Government is taking to
+raise productivity and therefore create more jobs and raise incomes.
+
+I want to mention just a few of them.
+
+Budget 2012 contains $385 million of new investment over four years in research,
+science, and innovation.
+
+We need to support businesses and farms to innovate and stay ahead of the competition.
+
+And we need to ensure New Zealanders have the right skills to compete in an increasingly
+global labour market.
+
+
+Over the next four years, Budget 2012 investments include:
+
+- $166 million to redevelop an Advanced Technology Institute, which will help
+New Zealand's high-tech firms grow, increase exports, and ramp up productivity.
+
+- $60 million to support a series of National Science Challenges, which will seek
+innovative solutions to specific questions of national significance.
+
+- $100 million additional funding for the Performance-Based Research Fund to support
+world-class research in New Zealand's universities.
+
+- $59 million to boost funding for science and engineering courses. Funding rates for
+engineering degrees will be increased by 8.8 per cent and for science degrees by
+2 per cent.
+
+- In its first three years, the Primary Growth Partnership has stimulated more than
+$430 million in research and development investment from government and industry. A
+further $270 million of investment by the Government and industry is awaiting approval
+of business plans or negotiating contracts.
+
+
+Mr Speaker,
+Budget 2012 continues the Government's programme of investment in productive
+infrastructure and other major capital projects.
+
+In particular, the Budget establishes the Future Investment Fund. This fund will receive all
+proceeds from the Government's sale of up to 49 per cent of shares in four SOEs and
+Air New Zealand.
+
+These proceeds are expected to be between $5 billion and $7 billion.
+
+The Future Investment Fund will reinvest these proceeds in other public assets, such as
+modern schools and hospitals, over the next few Budgets. The Government will do this
+without having to borrow to pay for those new assets.
+
+We have earmarked $1 billion of the fund for modernising and transforming schools as
+part of the Government's 21st Century Schools programme.
+
+This demonstrates that the partial sale of shares in the five companies does not result in
+any net loss of publicly owned assets, but simply changes the mix of those assets.
+
+The Government would rather build new schools and better hospitals without having to
+borrow more from overseas lenders, and still retain a majority shareholding in these
+companies.
+
+The share offers will provide New Zealanders with an opportunity to invest their savings in
+large New Zealand companies and will help to improve the transparency and
+accountability of the companies.
+
+
+ As part of the Budget, the Future Investment Fund is allocating its first $559 million. This
+includes:
+
+- The first $34 million of funding for 21st Century Schools.
+
+- $250 million towards KiwiRail's Turnaround Plan.
+
+- $88 million for health sector initiatives, in particular hospital redevelopments.
+
+- $76 million for the capital costs of the new Advanced Technology Institute.
+
+
+We expect to make a significantly larger contribution from the fund in Budget 2013, once
+the share offers are under way.
+
+In addition, the Government is investing around $12 billion in improving state highways
+over the next 10 years.
+
+We are also investing more than $500 million a year in improving and maintaining local
+roads, and completing the $2.1 billion upgrade of the metro rail systems in Auckland and
+Wellington.
+
+Through Transpower, the Government is investing $4.6 billion in upgrading the national
+electricity grid over the next 10 years.
+
+New Zealand's size and geographic isolation from the rest of the world mean
+communications technology matters.
+
+That is why this Government is investing up to $1.35 billion in the roll-out of Ultra-Fast
+Broadband and an extra $300 million in the Rural Broadband Initiative, currently under
+way.
+
+
+Mr Speaker,
+As part of the Government's programme to deepen capital markets, the Budget last year
+made several changes to KiwiSaver.
+
+We announced an increase in the minimum contribution from individuals and employers
+from 2 per cent to 3 per cent, to take effect from 1 April 2013.
+
+About 15,000 New Zealanders a month are joining the scheme, and since March last
+year, total KiwiSaver funds have grown from $9 billion to more than $12 billion.
+
+Budget 2012 further strengthens KiwiSaver.
+
+New disclosure rules, to take effect from April 2013, will allow people in KiwiSaver to
+evaluate and compare the performance of different funds. Fund managers will be required
+to report their performance and returns, fees and costs, assets and portfolio holdings, and
+liquidity and liabilities.
+
+In addition, the Government is today issuing the terms of reference for a review of
+KiwiSaver default-provider arrangements to ensure they are working in the best interests
+of investors.
+
+The Government is also deferring its auto-enrolment exercise for KiwiSaver. Proceeding
+with auto-enrolment in 2014/15 as originally intended is now not possible without putting
+the updated forecast surplus at risk. Therefore, public consultation on auto-enrolment has
+been deferred until after 2012.
+
+In building a more competitive economy, the Government will develop initiatives across its
+business growth agenda.
+
+This will help businesses with the research, capital, ideas, skills, natural resources, and
+infrastructure that they need to grow, employ, and trade successfully with the rest of the
+world.
+
+This is how the Government will support job growth.
+
+Mr Speaker,
+Another of the Government's priorities is delivering better public services within
+tight financial constraints.
+
+A better-performing public sector is central to the Government's plans over the next three
+years. The Government wants to see better results and improved services, as well as
+reduced costs and more efficiency.
+
+To assist those changes, the State Sector Act, the Public Finance Act, and the Crown
+Entities Act will be amended, as recommended by the Better Public Services Advisory
+Group.
+
+Earlier this year, the Prime Minister announced 10 challenging results for the public sector
+to achieve over the next three to five years.
+
+We can help create better communities by achieving these results, which include:
+reducing long-term welfare dependency; supporting vulnerable children; boosting skills
+and employment; reducing crime; and improving interaction with government.
+
+We've already announced one of the targets â€“ 85 per cent of 18-year-olds having NCEA
+level 2 or equivalent in five years, up from 68 per cent currently.
+
+Today we are announcing two more as part of Budget 2012.
+
+The first is reducing prisoner reoffending by 25 per cent in five years. Reaching this target
+would mean 18,500 fewer victims of crime every year.
+
+The second is increasing the rate of participation in early childhood education to
+98 per cent, up from 94.7 per cent currently. This will ensure that as many children as
+possible have a strong platform for learning when they start school.
+
+We are still finalising our other Better Public Services targets and they will be announced
+by 30 June.
+
+Progress towards achieving the results will be reported publicly, so New Zealanders can
+judge for themselves how well we are doing.
+
+As we've said, achieving these results will be demanding â€“ in fact, for some of them, it will
+be quite difficult. We make no apology for that.
+
+
+Mr Speaker,
+Despite tight financial constraints, this Government has made investing in better frontline
+health services a priority over the past three Budgets. This continues in Budget 2012.
+
+
+Over the next four years, the Government is committing almost $1.5 billion extra to Vote
+Health, partly funded by $129 million of savings identified in 2011/12. This will:
+
+- Deliver 4,000 more elective operations a year.
+
+- Provide better service for cardiac and cancer patients.
+
+- Provide $12 million to reduce rheumatic fever.
+
+- Invest $133 million in disability support services.
+
+
+In addition, the Government will provide $60 million in capital for new buildings and
+hospitals.
+
+As we've already announced, pharmaceutical co-payments will be increased from $3 to
+$5, up to a maximum of 20 prescription items per family per year, after which items are
+free.
+
+Prescriptions for children under six will remain free.
+
+This is a modest increase that allows us to spend more on frontline health services than
+we would otherwise have been able to.
+
+As part of its wider health policy, the Government will also continue to increase tobacco
+excise by 10 per cent over and above inflation each year for the next four years.
+
+The first increase will occur on 1 January 2013, followed by annual increases on
+1 January in each of the following three years.
+
+Previous increases in the excise have reduced tobacco consumption, as smokers have
+given up or cut back and fewer young people begin smoking.
+
+I acknowledge the work and support of the Māori Party and its ministers, the Honourable
+Tariana Turia and the Honourable Pita Sharples, in this area.
+
+Mr Speaker,
+Raising student achievement and improving the tracking of student performance is
+important for New Zealand and therefore a priority for this Government.
+
+As we have confirmed, the Government is committed to the ambitious goal of 85 per cent
+of 18-year-olds with NCEA Level 2 or equivalent qualifications.
+
+Reaching this goal means resources must be managed to get better results for all
+students.
+
+Evidence shows the single most important thing we can do to raise achievement is to
+improve teaching quality. So Budget 2012 makes a significant investment in this area.
+
+Over the next four years, the Government will commit $512 million towards new frontline
+education initiatives. This takes the Government's total investment in early childhood
+education and schooling to $9.6 billion in 2012/13.
+
+This Government wants to create a flexible, skilled, and professional workforce through
+these initiatives to support principals and teachers.
+
+We are committing an extra $60 million to lift the quality of teaching in our schools. This is
+in addition to the $304 million we are spending on professional learning and development
+for teachers in primary and secondary education over the next four years.
+
+
+Budget 2012 also sets aside further funding to support priority learners. This includes:
+
+- $83 million in school operating grants.
+
+- $51 million to continue the roll-out of ultra-fast broadband in schools.
+
+- $48 million to increase participation by vulnerable groups in early childhood education.
+
+- $19 million to support Māori-medium early childhood education providers.
+
+
+The Government will provide extra parenting programmes and relationship education in
+secondary schools at a cost of $4 million over four years.
+
+We will also support a variety of youth mental health initiatives with an extra $17 million
+over four years.
+
+To increase investment in raising student achievement, and to manage the costs of
+increased primary-school-age children over the next four years, we are making small
+changes to current school funding ratios.
+
+Mr Speaker,
+I have already mentioned some of the new initiatives in tertiary education.
+
+In addition, Budget 2012 invests in providing more pathways into work and further training
+for young people leaving school.
+
+It provides an additional free 3,000 tertiary-based Youth Guarantee places at the cost of
+$37.7 million over four years.
+
+The Government will also continue to better target student assistance to where it is most
+needed and ensure better value for taxpayers.
+
+From 1 January this year, we implemented tighter income rules to ensure the student
+allowance is fair.
+
+
+Budget 2012 confirms a number of further student loan changes from 1 April 2013,
+including:
+
+- Increasing student loan repayments from 10 cents in every dollar earned over the
+income threshold to 12 cents.
+
+- Widening the definition of income for student loan repayment purposes.
+
+ - For student allowances, continuing the freeze on parental income thresholds until
+31 March 2016.
+
+- Targeting allowances to first degrees only, and removing exemptions for long
+programmes such as postgraduate training, taking effect from 1 January 2013.
+
+
+These changes are consistent with the Government's intention to see better value for
+New Zealanders, ensure the longevity of the student loan scheme, and improve alignment
+with Working for Families and other social policy initiatives.
+
+Mr Speaker,
+It is concerning for our future that around one in eight New Zealanders aged 18 to 64 is on
+a benefit, and around half of them have spent at least five of the past 10 years on a
+benefit.
+
+This Government has embarked on ambitious reforms focused on supporting
+New Zealanders out of welfare and into work.
+
+The Budget invests $287.5 million over four years in the first phase of this programme.
+
+This funding provides more education and training for young people. It will also focus on
+work availability and preparation for sole parents, widows, women alone, partners within
+the benefit system, and parents who have subsequent children while on a benefit.
+
+The second phase of welfare reform will be implemented in July 2013. This will involve
+changes to benefit categories.
+
+Both phases of the reforms are a shift towards a new investment approach to welfare.
+
+The investment approach provides greater transparency over the long-term cost of
+welfare, and focuses government agencies on reducing this cost through employment
+support and training.
+
+Mr Speaker,
+Budget 2012 continues the Government's policy of staying strong on crime.
+
+The justice sector, including the Ministry of Justice, and the departments of Police and
+Corrections, is developing new ways of working together and making better use of existing
+resources. This includes more flexible funding arrangements and shared use of staff and
+assets.
+
+This will allow the sector to focus on results â€“ reducing total crime, violent crime and youth
+crime, and reducing reoffending. For example, the Policing Excellence programme helped
+reduce total crime by 5.6 per cent between 2010 and 2011.
+
+As I've confirmed today, the Department of Corrections aims to reduce reoffending by
+25 per cent by 2017.
+
+To help achieve this, it will invest $145 million of reprioritised money from prison closures
+and cost reductions out to 2019/20 in rehabilitation programmes.
+
+Modernising court services will ensure that people can access services faster and more
+conveniently.
+
+Mr Speaker,
+Working with non-government providers, the Government is committed to improving
+housing affordability and providing assistance to households in need.
+
+Budget 2012 provides funding of $104 million for this over three years. This will be used to
+trial greater innovation, diversity, and scale in the social housing sector.
+
+The Government's housing policies will work alongside welfare reform to assist people
+towards independence.
+
+We are working with the housing sector to use our $15 billion investment in state houses
+and almost $2 billion of annual subsidies more effectively to house people in need.
+
+The Government will also work with councils to improve housing affordability for all
+New Zealanders.
+
+Mr Speaker, the Government's final priority is rebuilding Christchurch.
+
+The Government remains absolutely committed to supporting the rebuilding of
+Christchurch, our second largest city.
+
+The total cost of the damage is estimated at more than $20 billion, so it is without doubt
+the largest â€“ and most complex â€“ economic project in New Zealand's history.
+
+I want to pay tribute to the work of my colleague the Honourable Gerry Brownlee and the
+many public servants, community organisations, and families who have worked so hard to
+help each other through this disaster.
+
+Considerable progress is being made.
+
+Work on about three quarters of the 1,000 buildings required to be partially or fully
+demolished in the Christchurch CBD has been completed. Some 13,000 repair jobs are
+under way across greater Christchurch.
+
+A significant number of infrastructure repair projects, worth about $820 million, have been
+completed, are under way or in the design stage.
+
+And nearly 5,000 of the 7,000 property owners in the residential red zone have formally
+accepted the Government's offer to purchase their properties.
+
+About half of these owners have already settled, allowing them to move on and restart
+their lives.
+
+
+Mr Speaker,
+The Government is providing considerable resources for the Canterbury rebuild.
+
+We set aside $5.5 billion in Budget 2011 for the Canterbury Earthquake Recovery Fund.
+
+We established the Canterbury Earthquake Recovery Authority.
+
+And we passed special legislation so the Government can step in where required to
+remove structural barriers to reconstruction.
+
+Looking ahead, the Government is developing a blueprint for the central city to take
+forward the draft Central City Plan prepared by Christchurch City Council in consultation
+with the people of the region.
+
+That blueprint will focus on anchor projects and precincts, and provide sufficient direction
+to encourage the investment needed for rebuilding.
+
+The Government has assisted with land supply for housing by using special earthquakerecovery powers to amend land-use rules to allow rezoning of residential subdivisions.
+
+There is now a significant amount of residential land available in greater Christchurch potentially 26,000 sections over the next five years.
+
+About 6,600 greenfields sections are expected to be released to the market within the
+next two years.
+
+The Government is determined that residents can rebuild and move into their new or
+repaired homes as soon as possible.
+
+Finalising the remaining residential land zoning decisions and the settlement of
+outstanding insurance claims is therefore a priority.
+
+Mr Speaker,
+It is now almost four years since the collapse of Lehman Brothers, which set off the Global
+Financial Crisis and global recession.
+
+Since then, we have witnessed significant disruption to economies around the world, and
+that is likely to continue for years to come.
+
+The Euro area and the United Kingdom are going back into recession this year. The
+United States has low and uncertain growth.
+
+By comparison, New Zealand is going through a moderate adjustment. We are avoiding
+the substantial cuts to public services and living standards that we are seeing in many
+other developed countries.
+
+Our outlook is more positive than most. We are a food-producing economy on the
+doorstep of a rapidly growing middle class in the Asia-Pacific region.
+
+Providing we stick to the Government's balanced and ongoing economic programme over
+the coming years, I am confident we will grasp these opportunities.
+
+
+Mr Speaker,
+Budget 2012 sets out the next steps in that programme.
+
+It's about investing in our future.
+
+It's about implementing the Government's plan to build opportunities for New Zealanders
+from all walks of life.
+
+It's about returning to surplus in 2014/15, when we can start reducing debt brought on by
+the recession and the earthquakes.
+
+We are building a more productive and competitive economy, where New Zealanders
+have the jobs, higher incomes, and opportunities to get ahead in their own country.
+
+We are delivering better public services within tight financial constraints. And we are firmly
+focused on getting better results for New Zealanders and their families.
+
+We are helping to rebuild Christchurch and standing beside the people of Canterbury.
+
+New Zealanders have shown great resilience through challenging times. Budget 2012
+supports their aspirations for a brighter future.
 
 Mr Speaker,
 I commend this Budget to the House.
